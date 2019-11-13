@@ -1,2 +1,2 @@
 # Git-GitHub
-Hi,,,be strong and focussed.
+Hi,,,be strong, focussed and patient.
